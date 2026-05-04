@@ -1,1 +1,2 @@
-# Orograf-a-y-estructura-geol-gica
+# Orografía-y-estructura-geológica
+Según Casal, las Malvinas, en conjunto, «forman un bloque de rocas paleozoicas asentado sobre la península submarina de la parte sudoriental de nuestra plataforma continental; por lo tanto, son, desde ese punto de vista, parte de la Patagonia». La plataforma submarina argentina, cuya profundidad a esa latitud no alcanza los 200 metros, tiene allí una anchura de 1.000 km. Esto permite afirmar que sobre dicha plataforma se eleva el archipiélago malvinense, que dista solo unos 500 km de la costa patagónica. El relieve de las dos islas principales está constituido por planicies, a veces onduladas, y cerros redondeados cuya altura media no supera los 700 metros.
